@@ -1,6 +1,7 @@
 # Latest Pocket Option Promo Code: “WZR840” (60% Sign-Up Bonus 2025)
 
 If you’re searching for the **best Pocket Option promo code in 2025**, look no further. The code **“WZR840”** unlocks a **60% deposit bonus** on your first deposit, making it the top choice for traders seeking extra funds to kickstart their journey. In this guide, we’ll break down everything you need to know about Pocket Option, how to use promo codes, and why “WZR840” is your golden ticket this year.  
+[Click here to sign-up directly](https://u1.shortink.io/register?utm_campaign=811206&utm_source=affiliate&utm_medium=sr&a=KeCKuCKxcgUrDx&ac=red&code=HMT165))
 
 ---
 
