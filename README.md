@@ -146,5 +146,3 @@ Don’t miss out on maximizing your trading capital. Use the code **“WZR840”
 
 ---  
 **Disclaimer**: Promo codes are subject to Pocket Option’s terms. Always verify offers on their official website.  
-
-![Pocket Option Promo Code Banner](https://i.imgur.com/QZGvfJT.png)
